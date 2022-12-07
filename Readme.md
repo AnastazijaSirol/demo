@@ -1,1 +1,0 @@
-Anastazija æirol v2 
